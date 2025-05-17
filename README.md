@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on either of the above especially as a form of learning 
 - 📫 How to reach me contact me on my page 
 - 😄 Pronouns: Him
-- ⚡ Fun fact: im trying to quit my job lol
+- ⚡ Fun fact:
 
 <!---
 Refiloe9310/Refiloe9310 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
